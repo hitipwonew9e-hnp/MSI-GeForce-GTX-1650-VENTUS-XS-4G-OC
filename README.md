@@ -1,0 +1,1 @@
+# MSI-GeForce-GTX-1650-VENTUS-XS-4G-OC
